@@ -4,5 +4,3 @@
 - Curious, passionate and highly motivated
 - Greatly interested in IT, cyber security, infrastructure, electronics and anything cool 😎
 - I would love to chat with you via the following platforms: FIND ME IN PERSON!!!
-
-
